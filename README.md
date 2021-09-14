@@ -1,0 +1,1 @@
+# ayt-kimya-moduler-soru-bankasi-32
